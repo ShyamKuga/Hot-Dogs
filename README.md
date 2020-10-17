@@ -1,0 +1,1 @@
+First get the Hot Dogs and put it in a saucepan with boiling water. Wait for 3 to 6 minutes and they shuld be ready, then you are able to take them out one by one. After that step you can ut them into a bun and eat it or you can eat it by itself.
